@@ -6,4 +6,4 @@
 
 _segue um link e um gif da atividade_
 
-![Mega mente](https://tenor.com/pt-BR/view/megamind-gif-26941461)
+![Mega mente](https://media1.tenor.com/m/TFrHLljE7JsAAAAC/megamind.gif)
